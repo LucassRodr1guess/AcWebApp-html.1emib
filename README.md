@@ -6,3 +6,5 @@ Lucas Rodrigues Alves
 
 ## Print 
 ![print](https://media.discordapp.net/attachments/960884773725831228/1044953021685186680/image.png?width=1329&height=683)
+![print](![image](https://user-images.githubusercontent.com/84428281/203547942-f0e56a6e-45ce-48af-9f01-3f01219aa52e.png)
+
